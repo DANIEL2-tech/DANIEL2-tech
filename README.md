@@ -9,3 +9,4 @@ I am looking for investors because for my website and apps to be succesfulli nee
 <!-
 --->
 I come from the united kingdoms i studied ui/ux designing from codindg club nigeria i learnt vscode use in set time digital hub
+  
